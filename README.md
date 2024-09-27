@@ -75,7 +75,7 @@ This project is licensed under the MIT License. See the [LICENSE](LICENSE) file 
 
 ## Contact
 
-For questions or inquiries, please contact [HACKINTER](no2.hackinter@sendnow.win).
+For questions or inquiries, please contact [HACKINTER](https://x.com/_anonix_z).
 
 ---
 
